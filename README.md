@@ -1,5 +1,5 @@
 #Bloquear Cuentas TIKTOK FACEBOOK INSTAGRAM
-reporte masivo de tiktok bloquear cuentas Tiktok , Facebook , Instagram
+reporte masivo cuentas tiktok , Facebook , Instagram
 block tiktok , facebook , instagram
 CONTACTO t.me/servidorderedes
 
